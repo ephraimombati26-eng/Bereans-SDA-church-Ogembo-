@@ -1,0 +1,1 @@
+# Bereans-SDA-church-Ogembo-
